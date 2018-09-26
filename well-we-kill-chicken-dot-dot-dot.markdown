@@ -1,0 +1,6 @@
+---
+title: Well, we kill chicken...
+date: 2018-09-26 05:34:00 Z
+---
+
+Well, we kill chicken... and sell your there dead corps so you can take home and eat it...
